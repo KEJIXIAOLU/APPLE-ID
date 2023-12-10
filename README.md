@@ -16,6 +16,9 @@
 
 ## 二、Apple ID 注册方法
 建议使用手机浏览器注册，清理缓存，或者用无痕模式，关闭 WIFI，使用移动数据流量打开网页注册
+
+- 视频注册 Apple id 教程：https://youtu.be/fu-BpKykvTU
+
 - Apple id 注册地址：https://appleid.apple.com/account
 
 - 如果你不想注册也可以购买账号：https://lu.xintaifree.com/
