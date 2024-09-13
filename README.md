@@ -1,4 +1,4 @@
-# 【2023最新】注册美区Apple ID，大陆注册美国apple id方法，无需信用卡、不用翻墙注册美国 Apple ID
+# 注册美区Apple ID，大陆注册美国apple id方法，无需信用卡、不用翻墙注册美国 Apple ID
 
 中国注册美区Apple ID账号注册方法，操作简单，不用信用卡不用翻墙，付款方式 无
 
